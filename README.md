@@ -1,1 +1,0 @@
-# gronek.github.io
